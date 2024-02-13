@@ -1,6 +1,7 @@
 # REUSABLE SANITARY PADS MAKING
 
-Reusable Sanitary Pads are cloth pads that can be used several times. They absorb the menstrual blood and the pad should stay for about 4-5 hours depending on your menstrual flow. After use, you need to wash the cloth really well and remove every stain of blood and then you can reuse the same pad. These cloth pads are usually made in several layers. 
+How to make Reusable Sanitary Pads
+Reusable Sanitary Pads are cloth pads to absorb menstrual blood that can be washed and reused. Made of several layers of material, they absorb the menstrual blood and the pad can stay in use for about 4-5 hours depending on the heaviness and strength of your flow. When it gets saturated, wash out the cloth really well to remove blood, hang it up to dry in the sun to sanitise the fabric, and then you can keep reusing the pads for your period.  
 
 ## Description 
 The product consists of a top layer that comes in direct contact with the body, a transfer layer followed by an absorbent material whth absorb menstrual blood and other fluids, a leakproof layer at the bottom, and an adhesive coating at the back of leakproof layer for fixing to the panties, which prevents dislocation when worn.
