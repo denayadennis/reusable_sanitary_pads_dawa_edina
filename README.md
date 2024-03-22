@@ -26,7 +26,7 @@ The absorbent layer can be mixed with super-absorbent polymers to enhance absorp
 - Thread
 - Table
 - A ruler
-- Fly wood/box
+- Ply wood/box
 - Needles
 - Pencil and a paper
 
